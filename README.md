@@ -1,6 +1,6 @@
 ### hi! i'm natalie.
 
-[my website :)](https://philia.moe)
+[my website :)](https://files.philia.moe)
 
 i like coding and learning more about it day to day :)
 
